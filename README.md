@@ -1,0 +1,2 @@
+# pokedex_tugas
+pokedes_tugas_535180144_tejaputra
